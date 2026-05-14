@@ -1,4 +1,4 @@
-#  
+#  Experience evade like never before with evade updated Scripts, the #1 Script. Includes one-hit kill and infinite resources for unbeatable performance.
 
 
 
